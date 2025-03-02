@@ -21,7 +21,7 @@ In a post-apocalyptic city overtaken by robots and a rogue artificial intelligen
 ---
 
 ## 📷 Screenshots
-_(Add gameplay images here)_
+SOON
 
 ---
 
